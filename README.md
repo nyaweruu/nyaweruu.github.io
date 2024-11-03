@@ -1,5 +1,4 @@
 hello! I made this page to link my game accounts and stuff like that, as I'd prefer it over here instead of discord.<br>
-discord: nyaweruu
 
 Final Fantasy XIV: [Nemu Nanachi @Twintania](https://na.finalfantasyxiv.com/lodestone/character/50389568/)<br>
 Runescape 3: [dokihana](https://secure.runescape.com/m=hiscore_hardcore_ironman/compare?user1=dokihana) hc leaderboards<br>
